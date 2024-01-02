@@ -1,2 +1,2 @@
 # Rune-Executor-Source-Leak
-nano your bitch
+nano your a bitch
